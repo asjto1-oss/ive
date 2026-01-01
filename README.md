@@ -3,3 +3,7 @@
 베이비관련
 
 diaper,baby bed,paci,bib,bootee,rattle
+
+산책
+
+{{{{1 girl}}}},full body,wearing a diaper,paci,bib,bootee,rattle black hair,artist:henreader,artist:ciloranko,[artist:sho_(sho_lwlw)],[[tianliang duohe fangdongye]],stoller,arrest belt on legs,bined legs,shorts cut hair,ahegao,fucked silly,lamented face,nude,open mouth,full-face blush,park, {{in baby bed}},{{{best quality, amazing quality, very aesthetic, highres, incredibly absurdres, uncensored, skindentation}}}
