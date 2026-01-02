@@ -11,5 +11,7 @@ diaper,baby bed,paci,bib,bootee,rattle
 분리불안단계
 
 {{{{2 girl}}}},focus on back,artist:henreader,artist:ciloranko,[artist:sho_(sho_lwlw)],[[tianliang duohe fangdongye]], {{{kindergarten}}},baby mat,{{{best quality, amazing quality, very aesthetic, highres, incredibly absurdres, uncensored, skindentation}}}
+캐릭터1
 girl, blond long hair, pink apron, kindergarten teacher clothes, blue shirts, hug,big breast,smile face, closed mouth
+캐릭터2
 girl, adult baby,black short hair,black eyes, {{empty eyes}},small breast,sitting,arrest belt,tears,bined legs,nude,diaper,bib,bootee, open mouth, full-face blush,tearful face
